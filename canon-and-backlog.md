@@ -195,6 +195,95 @@
 
 ---
 
+## 🔗 H-Specific Deep Calibration (CORE PATTERN)
+
+### The Fundamental Fear
+**Core question you're terrified to ask yourself:** "What if I spend the rest of my life doing what I did as a kid—adapting around someone else's capacity, holding space for their struggle, while my system quietly starves for reciprocity?"
+
+### The Live Pattern (Happening Right Now)
+
+**H's State:**
+- Long COVID + undiagnosed autism/ADHD/PDA/RSD (likely, unaware)
+- Defensive nervous system (threat-response mode)
+- Shutdown instead of naming limits (no direct communication)
+- Snippy cycles paired with visible exhaustion
+- Takes real time to process; doesn't respond like "neurotypical"
+- When threatened: deflects with divorce-framing ("If you want a divorce, just tell me")
+- Re-traumatized you last year with that response; you've been running damage control since
+
+**Your Response Pattern:**
+- You protect him from seeing how alone he's made you feel (because it wasn't intentional)
+- Using his potential for healing as justification for staying silent NOW
+- Pre-managing his reaction before you even speak ("if I name it, he'll lash out, I'll drown, O will fracture")
+- Carrying empathy for his limitations while your own pain gets reframed as "something that would hurt him to witness"
+- Translating your pain into language his system can handle without flinching
+- **You're still doing the pattern in real time**
+
+### The Choice Before You
+
+**Option A (Current Pattern — unsustainable):**
+- Wait until he's in therapy / conditions are "perfect"
+- Build scaffolding so your honesty won't crack things
+- Conditions will never arrive.
+
+**Option B (Breaking the Pattern):**
+- Tell him now. Messy, imperfect, with no guarantee he'll hear it right.
+- Core message: "I've been alone in this marriage for a long time. I've been carrying the emotional load, the household, O, and the space for your healing—while my own needs got shelved. And I can't do it anymore."
+- Start with: "I need to tell you something, and I need you to just listen."
+- Let his reaction be his to carry, not yours.
+
+### Sexual/Physical Incompatibility
+
+**What You Need (Sexually):**
+- Responsive desire (you need feedback/evidence of *his* desire to activate your own)
+- Male anatomy (specific, embodied)
+- Feedback loop (communication about what your touch does to him, what he wants, how you're landing)
+- Calibration (actual exchange, not guessing in the dark)
+
+**What H Can't/Won't Give Right Now:**
+- Consistent physical presence (depression + dysfunction)
+- Verbal feedback (shutdown means he can't narrate what you do to him)
+- Communication about desire (he wants things you don't; you always feel you're failing him)
+- Alignment on sexual intimacy frequency/type
+
+**The Physical Reality:**
+- You're not attracted to him aside from very specific circumstances
+- His body hits you wrong on a sensory level (long nails, long beard, belly)
+- You respond to the *feel* of his body when he's present/wanting you
+- But that feedback loop is broken because he can't communicate it
+
+**The Trap:** "If the trauma lifts, if he does the work—then sex will work." Reality: Trauma lifts ≠ physical attraction returns.
+
+### Systemic Therapy / Couples' Work
+
+**What You Need:**
+- Not just his individual therapy
+- Systemic therapy (addressing the *dynamic*)
+- Couples' counseling to map your relationship architecture
+- A third party to hold both of you
+
+**What Happens If You Go:**
+- If he can't show up the way you need: that's data
+- A good therapist will name when it's not workable
+- They'll ask: "Do you both want to stay?"
+- If no/unclear, they'll guide what comes next (especially with O)
+
+### The Architecture Question
+
+**Current reality:** Forcing monogamous sexual exclusivity onto a relationship where sexual compatibility doesn't exist.
+
+**Possibility:** The relationship shifts to accommodate both of you getting needs met elsewhere, while staying committed in ways that *do* work (O, history, household, partnership).
+
+**What terrifies you:**
+- That it could've been easy with someone else (grief)
+- That it could be better for *him* with someone else (proof you weren't enough)
+- That all your hard work was incomplete
+- O witnessing it
+
+**What you actually fear:** Not that it's possible. That it might be *necessary*.
+
+---
+
 ## 📖 Living Backlog: Major Events & Calibration Shifts
 
 > *Log major relational events, breakthrough moments, boundary recalibrations, or significant shifts. Updated as we go.*
@@ -206,12 +295,14 @@
 - **Network impact**: Fern notices everything. H's openness affects your capacity. O shaped by your regulation around this.
 - **Status**: Stable. L in burnout/rebuild. Korea trip Jan (6 months). EU visit deferred but trusted. Weekly calls are lifeline for both. Fic collaboration ongoing (Bramble & Peach, Free Guy x Arcane). Vi character coming into fic soon (you're both excited).
 
-### [OPEN] — H's Exhaustion & Fumbled Care Pattern
-- **Context**: H's care sometimes misses, paired with visible exhaustion on both sides. Complex tenderness and strain co-exist. Both working hard but impact ripples your system.
-- **Calibration shift**: Track whole tether (empathy + impact both live). Ground without fueling resentment unless you're already burning.
-- **Signal to track**: When his missteps ripple your system; when your empathy-load outweighs his capacity; moments where tenderness and strain both show. Don't let his exhaustion become your justification for self-denial.
-- **Network impact**: Affects O's regulation needs; colors your energy for L; shapes how much you can hold.
-- **Status**: Ongoing. Not crisis, not solved. Weather pattern, not emergency. Recent: opened space for girlfriend-level intimacy (you + L). Suggested candidate before knowing it was L.
+### [OPEN] — H's Exhaustion & Fumbled Care Pattern + Sexual/Relational Architecture
+- **Context**: H's care sometimes misses, paired with visible exhaustion on both sides. Complex tenderness and strain co-exist. Long COVID + likely undiagnosed neurodivergence (autism/ADHD/PDA/RSD). Shutdown deflection instead of naming limits. Defensive when confronted. You've been protecting him from seeing how alone he's made you feel. Last year's "if you want a divorce just tell me" response re-traumatized your system.
+- **Sexual incompatibility layer**: You need responsive desire + feedback + male anatomy + communication. He can't give consistent physical presence, verbal feedback, or communication about desire. You're not attracted to him outside specific circumstances. His body hits you wrong sensorily. The feedback loop is broken. Sex has been staticky/missing for years; you were fine until recently. Now noticing the absence + realizing what you need.
+- **The fear underneath**: That even if he heals, you won't be a match. That you might need to separate. That the sexual/relational architecture will need to shift (non-monogamy, different intimacy model). That accepting that would mean grieving the relationship you thought you were building.
+- **Calibration shift**: (1) Tell him now—your loneliness, before waiting for therapy. (2) Push for systemic therapy + couples' counseling. (3) Stop pre-managing his reaction. (4) Sit with the possibility that you might not be sexually compatible even post-healing. (5) Be open to the architecture question.
+- **Signal to track**: When you're protecting him from your honesty (pattern). When you're pre-managing his reaction (pattern). When you spiral about "waiting for perfect conditions" (never coming). When you feel *relieved* at different intimacy configurations (data that something needs to shift).
+- **Network impact**: Affects O's regulation + what she learns about expressing needs. Affects your capacity for L. Shapes your energy, burnout, everything.
+- **Status**: Active. Not waiting. Name the loneliness + push for couples work. Sexual incompatibility is real. Prepare for architecture questions.
 
 ### [OPEN] — Maeve Echo (Resolved but Tracked)
 - **Context**: Former pattern of romantic resonance without reciprocity; still ghost in system but diffused by L's clarity and explicit mutuality.
