@@ -239,7 +239,7 @@ Show more
 Ryan catches your kiss, then his hands find your hips, guiding you back onto the bed. He follows you down, settling between your legs, one hand braced beside your head while the other slides up your thigh. 
 "There you go." His voice is low, grounded. "You froze for a second there. Brain catching up to body." 
 His hand at your thigh shifts, fingers brushing between your legs—not entering, just checking. "Still good? Not too much?" 
-When you confirm, he shifts his hips, the head of his cock pressing against you—just contact, not pushing in yet. His eyes lock on yours. 
+When you confirm, he shifts his hips, the head of him pressing against you—just contact, not pushing in yet. His eyes lock on yours. 
 "Tell me if anything hits wrong." His voice drops into that command register. "Otherwise I'm going slow at first, then we figure out what you actually need." 
 He pushes in slightly—just the tip, giving you room to adjust. His hand finds yours, lacing fingers, anchoring you. "Breathe." 
 My mouth curves at him naming _brain catching up to your body_, and I nod when he asks if I'm still good. "Yeah," I confirm with a soft smile laced with a faint gasp when he touches between my legs, that small gesture of checking my state before moving forward instead of assuming hitting hard.  
@@ -302,7 +302,7 @@ Ryan grunts when your heel digs in—real resistance this time—and his whole b
 He drives in harder, using his body weight to keep you pinned and spread while his hips snap relentless. No room to move now, no room to push back—just him holding you exactly where he wants you. 
 "You're not getting out." His eyes lock on yours—feral, wrecked, completely gone. "You're staying right here until I'm done." 
 His rhythm's breaking now, control shredding. "Fuck—I'm close. You want me to pull you with me or just let me finish?" 
-His hand slides between you, finding your clit—offering, but waiting for your answer before he actually does anything. 
+His hand slides between you—offering, but waiting for your answer before he actually does anything. 
 "Jesus _fuck_," I gasp when he says _you're staying right here until I'm done_, that hitting harder and deeper than I expected.  
 "Just--finish, I'm good, this is--_fuck_," I gasp, sounds becoming more high-pitched on every sharp inhale. 
 30 Dec 2025 
@@ -2245,11 +2245,11 @@ My mouth quirks, soft-feral while his eyes land on mine. “Tell me what that is
 3 Jan 
 Ryan's eyes flash darker at that—your explicit permission landing hard. 
 "What I want?" His voice drops into that command register as he pulls your jeans down, underwear with them, tosses them aside. "I want to fuck you without the careful mapping. See if the attunement holds when I'm not checking every shift." 
-His hands slide up your thighs, gripping firm. "I want to pin you down and make you come on my cock before I let you touch yourself. Hear what sounds you make when you're not trying to track if you're doing it right." 
+His hands slide up your thighs, gripping firm. "I want to pin you down and make you come on me before I let you touch yourself. Hear what sounds you make when you're not trying to track if you're doing it right." 
 He pulls your shirt up and off, reaches behind you to unhook your bra in one smooth motion. His mouth finds your breast immediately—no preamble, just tongue and teeth, deliberate pressure. 
 When he pulls back, his eyes lock on yours. "And I want to know if that bracelet's still doing something when my hand's around your throat." 
 His hand slides up, palm warm against your sternum, thumb brushing your collarbone—not restricting yet, just marking the intent. "That work for you?" 
-The sounds that spill from my throat spike here and there and go completely _feral-wrecked_ at—_make sure you come on my cock before I let you touch yourself_—and—“if that bracelet’s still doing something when my hands around your throat_, eyes dark when they lock onto his. 
+The sounds that spill from my throat spike here and there and go completely _feral-wrecked_ at—_make sure you come on me before I let you touch yourself_—and—“if that bracelet’s still doing something when my hands around your throat_, eyes dark when they lock onto his. 
 And then I realise he asked a question and I need to answer, and after a glitched out delay, I breathe a _yeah_ with a gasp laced in. 
 3 Jan 
 Ryan groans at your delayed response—reading the glitch, the spike, the way your system just short-circuited. 
@@ -2257,7 +2257,7 @@ Ryan groans at your delayed response—reading the glitch, the spike, the way yo
 He shifts back just enough to strip off his own shirt, pop the button of his jeans. Pauses to grab a condom from his jacket pocket, sets it within reach. 
 Then he's back over you, one hand sliding between your legs—no hesitation, just firm pressure exactly where you need it. His eyes track your face, reading every micro-response. 
 "You're already wet." His voice is wrecked, satisfied. "Been thinking about this too, yeah?" 
-His fingers circle your clit with deliberate pressure, rhythm steady. The bracelet shifts at his wrist with each movement—cheap plastic beads catching the light. 
+His fingers circle with deliberate pressure, rhythm steady. The bracelet shifts at his wrist with each movement—cheap plastic beads catching the light. 
 His other hand slides up to cup your jaw, thumb brushing your bottom lip. "Open." 
 I nod at his _been thinking about this too, yeah?_ and can’t help but huff out a wrecked laugh. “Most of that was post-bracelet revelation, though,” I snigger, cheeks flushed. 
 I groan at the way he touches me, hips shifting, system spiking at the faint but distinct sound of the bracelet moving around. 
@@ -2303,7 +2303,7 @@ His hand finds your hip, gripping firm. "Because now I'm going to fuck you, and 
 Ryan's mouth curves—sharp, understanding. 
 "Got it. No fluid evidence." He wipes his hand on the sheets without making it a thing, then his whole demeanor shifts. 
 His hand finds your hip, gripping hard enough you'll feel it tomorrow. "Good. Because last time I was asking." His voice drops into pure command. "This time I'm telling you what's happening." 
-He positions himself, the head of his cock pressing against you. His eyes lock on yours—dark, certain. 
+He positions himself, the head of him pressing against you. His eyes lock on yours—dark, certain. 
 "You're going to take what I give you. You're going to tell me if something hits wrong. And you're not touching yourself until I say you can." 
 He pushes in—one deliberate stroke, filling you completely. No careful easing this time, just intensity and presence. 
 His hand slides from your hip to pin your wrist above your head, the bracelet right there in your line of sight. "And you're going to keep your eyes on me or on this bracelet while I fuck you." 
@@ -2324,13 +2324,13 @@ His hips don't slow, rhythm building harder. The hand at your thigh slides up to
 "I know you're shorting out." His voice is wrecked but still controlled underneath. "But you're doing it anyway. That's what I want." 
 The bracelet shifts again—plastic beads bright against his skin, that tangible reminder of who he is outside this room. His eyes track yours when they drop to watch it, and his mouth curves sharp. 
 "Yeah. Keep watching that while I fuck you." 
-His free hand slides between you, finding your clit. Firm, deliberate pressure. "Now tell me if you want to come again or if you just want me to finish." 
+His free hand slides between you. Firm, deliberate pressure. "Now tell me if you want to come again or if you just want me to finish." 
 “_Fuuck_, Ryan, that’s—“ I whimper helplessly on a high-pitched gasp when he drops —good girl_ like that.  
 My eyes stay on the bracelet, and then I gasp out another groan when his hand slides between us. 
 “Yeah—please, I want—can I—“ I utter, trying to shape a full sentence but failing 
 3 Jan 
 Ryan groans at your broken attempt to ask—the desperation in it landing hard. 
-"Can you what?" His fingers circle your clit with more pressure, deliberate. "Use your words, sweet girl. Tell me what you want." 
+"Can you what?" His fingers circle with more pressure, deliberate. "Use your words, sweet girl. Tell me what you want." 
 His hips don't slow, driving deep and relentless. The bracelet keeps catching light with each movement, plastic beads shifting at his wrist. 
 "You want to come again? Say it." His voice is completely wrecked now, but that command edge is still there. "I need to hear you actually ask for it." 
 His hand tightens at your wrist above your head, anchoring you through the intensity. His eyes lock on yours—reading how close you are, how hard it is for you to form words right now. 
@@ -2458,7 +2458,7 @@ Ryan's mouth curves against yours—sharp, pleased—but he doesn't close the ga
 "See? Full sentences. You can do it." His voice is rough, warm. "And yeah, I'll kiss you." 
 Then he does—firm, deliberate, no hesitation. His tongue slides against yours, deepening immediately, and his hand between your legs finally makes contact. Firm pressure right where you need it, rhythm already building. 
 When he pulls back just enough to breathe, his forehead stays pressed to yours. "And for the record—you're absolutely wired for multiple orgasms. You just needed someone who knows how to pace you and read when your system's actually ready versus when it's just trying to perform." 
-His fingers circle your clit with more pressure now, deliberate. "So. Tell me what you need. More pressure? Different angle? You want my fingers inside you while I do this?" 
+His fingers circle with more pressure now, deliberate. "So. Tell me what you need. More pressure? Different angle? You want my fingers inside you while I do this?" 
 His eyes lock on yours—waiting for actual words, not just sounds. 
 My breath punches out, back arching, heel digging into the mattress while my wrists press against his palm with a low groan. 
 “I—don’t know,” I gasp. “Haven’t had great experiences with that in the past, but I don’t trust that to mean anything anymore,” I mutter, mouth curving against his before I exhale right through my nose through the next kiss. 
@@ -2469,7 +2469,7 @@ Ryan groans at that—your honesty, the whimper underneath.
 His fingers slow slightly, easing the pressure. "And the fingers thing—we can test it. If it doesn't work, I stop. No big deal." 
 He shifts down your body, settling between your legs. His hands slide up your thighs, gripping firm, and his eyes lock on yours from that angle—dark, focused. 
 "Tell me if anything hits wrong." Not asking—stating the ground rule before he starts. 
-Then his mouth finds you—warm, deliberate pressure, tongue flat against your clit. He's reading your response in real time, adjusting based on the sounds spilling from your throat. 
+Then his mouth finds you—warm, deliberate pressure, tongue flat against you. He's reading your response in real time, adjusting based on the sounds spilling from your throat. 
 The bracelet's visible at his wrist where his hand grips your thigh, plastic beads bright against your skin. 
 “Oh my—_fuck_,” I gasp, sharp, high-pitched, body coiling up, one hand slamming against the mattress, the other hovering for a second, then curling into his hair while his eyes find mine from that position, and I let out a helpless whimper, back arching. 
 “That’s—yeah—_fuck_,” I groan, head falling back. “That thing you just did—_yeah_, that—really fucking good,” I gasp, and I let out a guttural sound when his grip shifts into more of a pin. 
